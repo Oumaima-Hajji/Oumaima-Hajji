@@ -15,6 +15,6 @@
 Contact
 You can reach me through the following channels:
 
-[Gmail](oumhjj@gmail.com)
+Email: oumhjj@gmail.com
 
 [LinkedIn](https://www.linkedin.com/in/oumaimahajji/)
